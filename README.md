@@ -4,7 +4,7 @@ Integrantes:
 
 
 
-Jairo Marquez Covarrubias
+Jairo Jesus Marquez Covarrubias
 
 
 
